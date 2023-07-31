@@ -1,8 +1,8 @@
 ### Hi, there. 
-This is Yiling Yin, but you can call me kayla if you like.
+This is Yiling Yin, but you can call me Rae if you like.
 
 **Pronouns:** she/her or they/them
-- I'm an developer in a info commpany. 
+- I'm a software developer in an information technology based commpany. 
 - 🐶  I'm a dog person. 
 - Leisure time: ⛰️ 🚴 🏃 📖 🎧 🍺 ☕️ 
 - ✉️ Ask me about anything.
